@@ -1,0 +1,1 @@
+Macarons are french meringue cookies that are sandwiched together with filling.
